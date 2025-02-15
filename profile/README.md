@@ -2,7 +2,7 @@
 
 <img src="https://github.com/user-attachments/assets/3ba69b48-4aa5-4842-98e1-4569c0102be0" width="150" />
 
-## Download Here:👉 [Plants vs Zombies Fusion 2.2.1 Official APK](https://apkbros.com/yupmovie-com-apk/) 
+## Download Here:👉 [Plants vs Zombies Fusion 2.2.1 Official APK](https://apkbros.com/pvz-fusion/) 
 🚀 **Stay Ahead in Gaming!** 🎮
 
 📢 **Join the Ultimate Gaming Groups Today:**  
